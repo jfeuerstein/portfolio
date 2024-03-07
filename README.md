@@ -1,2 +1,2 @@
 # portfolio
-a cool portfolio for a cool guy :)
+only adding things to this that i think are cool
